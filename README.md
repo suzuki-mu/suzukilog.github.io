@@ -1,0 +1,1 @@
+# suzukilog.github.io
